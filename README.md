@@ -7,3 +7,6 @@
 
 ## 🌐 Acesse meu portfólio online
 [🔗 Clique aqui para acessar](https://fatec-jacarei-dsm-portfolio.github.io/ra2581392423034)
+
+
+https://www.youtube.com/watch?v=aASZN8WmkTc
